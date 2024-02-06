@@ -4,7 +4,7 @@ I’m currently learning nothing. I'm just collecting a buncha stuff to bypass s
 
 to reach me, add me on discord (@beamedup)
 
-pronouns- He/Him (He/They, maybe? still thinking abt that)
+pronouns- He/They
 
 fun fact- I draw stuff occasionally
 
