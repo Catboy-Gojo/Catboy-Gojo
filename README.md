@@ -1,4 +1,4 @@
-haiii I'm Catboy Roxas :3
+haiii I'm Catboy Gojo :3
 
 I’m currently learning nothing. I'm just collecting a buncha stuff to bypass school stuff
 
