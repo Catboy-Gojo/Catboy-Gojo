@@ -1,10 +1,10 @@
-# haiii I'm Catboy Gojo :3
+# I'm Catboy Gojo, I dunno.
 
 I’m currently learning nothing. I'm just collecting a buncha stuff to bypass school stuff
 
 to reach me, add me on discord (@beamedup)
 
-pronouns- He/They
+pronouns- uhh whatever you feel like
 
 fun fact- I draw stuff *occasionally* (never)
 
